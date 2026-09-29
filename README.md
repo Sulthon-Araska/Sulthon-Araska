@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-🔭 I’m currently studying **Astronomy** as an undergraduate student in **Bandung Institute of Technology** \
+🔭 I’m an **Astronomy fresh graduate** from Bandung Institute of Technology \
 🌱 I’m currently learning _space sciences_: **astrophysics**, **observational astronomy**, **astronautics**; and **data sciences** \
 🫱🏼‍🫲🏼 I’m looking to collaborate on **computational astronomy** \
 🤔 I’m looking for help in learning **web development, artificial intelligence (AI), & machine learning** \
