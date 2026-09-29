@@ -5,7 +5,7 @@
 🫱🏼‍🫲🏼 I’m looking to collaborate on **computational astronomy** \
 🤔 I’m looking for help in learning **web development, artificial intelligence (AI), & machine learning** \
 💬 Ask me about **astronomy** _stuffs_! \
-📫 How to reach me: **Sulthon_Araska@outlook.com** or **10321013@mahasiswa.itb.ac.id** \
+📫 How to reach me: Email me via **Sulthon_Araska@outlook.com** \
 🚹 Pronouns: **He/him** \
 ⚡ Fun fact: _I have lost interest in playing online games_ 😐
 
